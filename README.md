@@ -1,1 +1,1 @@
-# Maqueta-de-parcial
+# parcial Isabella Pinzon.
